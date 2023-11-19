@@ -1,3 +1,2 @@
-Children Safety
-Violent Content Filter
+Children Safety (Violent Content Filter)
 
